@@ -41,7 +41,7 @@ Hostinger bietet ein unschlagbares Preis-Leistungs-Verhältnis mit extrem schnel
 | Support | 📞 24/7 Live-Chat | ⏳ Oft langsam |
 | SSL & Sicherheit | ✅ Kostenlos | 🚫 Oft kostenpflichtig |
 
-🚀 **Jetzt Hostinger ausprobieren:** 👉 [Hier klicken und sparen](https://www.hostinger.de/affiliate-link)
+🚀 **Jetzt Hostinger ausprobieren:** 👉 [Hier klicken und sparen](https://www.hostinger.de/)
 
 ---
 
